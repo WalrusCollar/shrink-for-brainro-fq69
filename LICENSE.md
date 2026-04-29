@@ -1,4 +1,4 @@
-
+shrink for brainrots Script best is the best shrink for brainrots Script, featuring auto-farm and fly. Safe and powerful for all your needs.
 
 
 
